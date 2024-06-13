@@ -1,6 +1,6 @@
 🤍
 
-![](anna karina cut GIF https://media4.giphy.com/media/Gv3k5mLX4buWQ/giphy.gif?cid=6c09b9522d43bk2cicmukfpeml1o3bvq7qaj4w84nwe4ql3r&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
+![](https://media1.tenor.com/m/gv3TuoC1Ei8AAAAd/jean-luc-godard.gif)
 <!--
 **milenaalanis/milenaalanis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
